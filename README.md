@@ -1,2 +1,2 @@
 # email
-training
+I'm just training
