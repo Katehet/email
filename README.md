@@ -1,3 +1,3 @@
 # email
 I'm just training
-![alt ](https://yadi.sk/i/OyhLd6f9hRTGuA)
+![alt for_mail](https://s299myt.storage.yandex.net/rdisk/dff60aa15d3e81f61267160b238cc4f1e41c12a3eefd5b893423e9eb309f8d58/5ced608f/UJ1IJ6HGtEYWVHZNbAI5-RwWzA7Yqir6VP8dEqdQ0t1Ss-E0jcTzg157r7x7wk9YI851Wb0DmWFQH4obXI_5pA==?uid=527538704&filename=Вариант-1.jpg&disposition=inline&hash=&limit=0&content_type=image%2Fjpeg&fsize=60553&hid=f7157ae0b6c92b24c37db214d1fb07c0&media_type=image&tknv=v2&etag=9937353c7b9e7faea09f77c23f1e5c9f&rtoken=oxQZ2HsF3hMa&force_default=yes&ycrid=na-6549824f3190e5b47bf8faca7ca9c869-downloader16h&ts=589f5169e01c0&s=b527795917a75a8e8917ff8f6e5818b9c16a721b0c1c484b9657e02cedae6337&pb=U2FsdGVkX18Jg6QyWjoiy-xptrDapm0iIWmNCODDiaeYRbt9J9s-BjsHJW2q2XI7RyPiqzmKgCjocUnDD4ntiGWVLD7OtsnX56W4gQJf2eI)
