@@ -1,3 +1,3 @@
 # email
-### I'm just training
+### Just training html-email
 ![alt ](/shot.png)
